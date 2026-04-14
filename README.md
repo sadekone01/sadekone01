@@ -16,6 +16,7 @@ I currently work as a tech helpdesk, where I get hands-on experience solving rea
 ### Education
 - A.A., Business Administration, Anne Arundel Community College, 2022
 - B.A., Computer Information Systems/Computer Programmig, Wayne State College, 2027
+- B.A., Finance, Wayne State College, 2027
 
 
 
